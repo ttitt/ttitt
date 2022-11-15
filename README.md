@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there I'm ttitt.👋
 ![img](https://ttitt.net/img/logo.jpg)
 
 I like project of open source and all interesting things and want do try to do it.
